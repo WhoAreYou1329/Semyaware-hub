@@ -1,1 +1,3 @@
-JOIN OUR DISCORD SERVER WITH THIS LING: https://discord.gg/sDSAMQQ67m
+JOIN OUR DISCORD SERVER WITH THIS LINK: https://discord.gg/sDSAMQQ67m
+
+(paid keys soon)
